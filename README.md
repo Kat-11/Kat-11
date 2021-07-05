@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kat-11 !:D I am a professional connector! I enjoy building relationships and understanding what really excits people in the tech space. Then I connect them with like minded indvidiuals to create something pretty awesome :P
+- 👋 Hi, I’m @Kat-11 !:D I am a professional connector! I enjoy building relationships and understanding what really excites people in the tech space. Then I connect them with like minded indvidiuals to create something pretty awesome :P
 - 👀 I’m interested in learning as much as possible about the newest technologies and their impact
 - 🌱 I’m currently learning about blockchain. 
 - 💞️ I’m looking to collaborate with anyone who is interested in new career opportuntities with fast growing startups (US & Canada). 
